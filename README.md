@@ -9,4 +9,4 @@
 
 #### In the future, I am going to start developing video games; so if you'd like to contact me about this, please email me at jupton7804@conestogac.on.ca! =)
 
-###### *[Discaimer: This is for a project. Please do not contact me.]*
+###### *[Discaimer: This is for a project. Please do not contact me unless you are my professor.]*
